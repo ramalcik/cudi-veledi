@@ -10,7 +10,7 @@ Ve Takachi konusuna gelecek olursak, Takachiva Stark (Arda 18) Denen türeme Tak
 
 ![image](https://media.discordapp.net/attachments/1125892939726467213/1125897176317436036/image.png?width=546&height=222)
 
-
+Fake Olana Dilendiginiz gibi dmden yazip ne isterseniz soyleye bilirsiniz orasi artik bizi ilgilendirmez sizden ricam adamı gidip rahatsız etmeyin orjinal takachimi
 
 `REPODAKİ ASKLARIMIN DC ISIMLERI`
 `takachijs`
