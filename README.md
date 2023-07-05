@@ -6,16 +6,10 @@ EVET BU REPOMDA SUNUCULARA VURAN KENDINI BOTCU DIYE TANITIP HIC BIRSEY BILMEYEN 
 ![image](https://media.discordapp.net/attachments/1125892939726467213/1125917460428759171/IMG_9686.png?width=1439&height=664)
 ![image](https://media.discordapp.net/attachments/1125892939726467213/1125917155171500144/IMG_9418.png?width=979&height=256)
 
-ARKADAŞLAR UNUTMADAN BİRŞEY DAHA AÇIKLIYIM SANALDA ESKİDEN TAKACHİ BİRİSİ VARMIŞ 2020 DE SALMIŞ BOTCU BUNUN İSMİNİ ALMIŞLAR 
-YANİ O GİDİP YAZDİGİNİZ TAKACHİ O TAKACHİ DEĞİL İSİMLERİ İLE ATİCAM ORJİNALİ VE FAKESİ KİM DİYE
+Ve Takachi konusuna gelecek olursak, Takachiva Stark (Arda 18) Denen türeme Takachi (Yahya Atlas Çukurovalı) nın nickini 2020 de Serendia sunucusunda çalmıştır, Onun discordu bırakmasından fırsat bulup nicki kendisinin gibi gösterip Takachi nickini kirleten aptalın teki. İşte burdada kanıt ss imiz:
 
 ![image](https://media.discordapp.net/attachments/1125892939726467213/1125897176317436036/image.png?width=546&height=222)
 
-Orjinal Takachim Askim benim 594453895955349504 idsi buda ismi takachijs
-
-Fake Olan botcu diye gezinip herkesten bot isteyen cocukta bu takachivastartk 1051263579258622024
-
-Fake Olana Dilendiginiz gibi dmden yazip ne isterseniz soyleye bilirsiniz orasi artik bizi ilgilendirmez sizden ricam adamı gidip rahatsız etmeyin orjinal takachimi
 
 
 `REPODAKİ ASKLARIMIN DC ISIMLERI`
