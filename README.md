@@ -18,7 +18,7 @@ Fake Olan botcu diye gezinip herkesten bot isteyen cocukta bu takachivastartk 10
 Fake Olana Dilendiginiz gibi dmden yazip ne isterseniz soyleye bilirsiniz orasi artik bizi ilgilendirmez sizden ricam adamı gidip rahatsız etmeyin orjinal takachimi
 
 
-`REPODAKİ ASALAKLAR DC ISIMLERI`
+`REPODAKİ ASKLARIMIN DC ISIMLERI`
 `takachijs`
 `ertu`
 `sxrkanreich`
