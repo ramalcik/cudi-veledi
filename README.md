@@ -17,5 +17,4 @@ Fake Olana Dilendiginiz gibi dmden yazip ne isterseniz soyleye bilirsiniz orasi 
 `ertu`
 `sxrkanreich`
 `papazchavo`
-`cartelfx`
 `darkdayscim`
