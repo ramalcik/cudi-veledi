@@ -14,7 +14,6 @@ Fake Olana Dilendiginiz gibi dmden yazip ne isterseniz soyleye bilirsiniz orasi 
 
 `REPODAKİ ASKLARIMIN DC ISIMLERI`
 `takachijs`
-`ertu`
 `sxrkanreich`
 `papazchavo`
 `darkdayscim`
